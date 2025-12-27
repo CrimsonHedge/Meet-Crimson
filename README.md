@@ -4,7 +4,7 @@
 
 <b>About</b>
 
-She/Her ★ Female ★ Ageless/Immortal (20 years chronologically) ★ Mobian Hedgehog ★
+She/Her ★ Female ★ Ageless/Immortal (24 years chronologically) ★ Mobian Hedgehog ★
 
 <b>Lore</b>
 
