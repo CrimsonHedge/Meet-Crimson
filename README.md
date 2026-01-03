@@ -66,4 +66,6 @@ Both began to realize their friendship was beginning to blossom into something m
 
 <img src="https://i.ibb.co/v40tPGGj/Untitled35-20251019162906.webp">
 
+<img src="https://i.ibb.co/ntCKH1D/Untitled99-20260102222107.png">
+
 <p align="center"><img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/72ad7538-7306-47fe-8356-d0804d0b6469/ddrk7tu-199957e2-8f89-4c55-8df6-6b0f2adc6ab8.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi83MmFkNzUzOC03MzA2LTQ3ZmUtODM1Ni1kMDgwNGQwYjY0NjkvZGRyazd0dS0xOTk5NTdlMi04Zjg5LTRjNTUtOGRmNi02YjBmMmFkYzZhYjgucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.rDnvX7CCSfyg8nnO0IyutLlYPxUTvekOf3DEdw65o4Q"></p>
